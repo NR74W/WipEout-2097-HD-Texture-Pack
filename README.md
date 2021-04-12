@@ -1,1 +1,1 @@
-![WipEout 2097 - Homepage](https://user-images.githubusercontent.com/62298614/92667801-3d7dcb00-f30d-11ea-9b7c-30edac19b800.png)
+![WipEout 2097 - Homepage](https://user-images.githubusercontent.com/62298614/114464227-c5022400-9be5-11eb-8cf0-12825a50ea4d.png)
